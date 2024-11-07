@@ -38,3 +38,15 @@ We would like to visualize various aspects of our pizza sales data to gain insig
 2.
 ![image](https://github.com/user-attachments/assets/66442464-ed65-4bd5-938c-ab329f091483)
 
+
+
+
+
+![image](https://github.com/user-attachments/assets/fb00b297-5f47-419e-86ca-eb10eb7195fc)
+
+![image](https://github.com/user-attachments/assets/67e173c0-a69a-4cd1-98b1-b6bb9f7e96e3)
+
+
+
+
+
